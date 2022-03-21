@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maki320
-- 👀 I’m interested in playing video games and scripting a website.
+- 👀 I’m interested in aviation and currently learning CSS and HTML
 - 🌱 I’m currently learning at high school
 - 📫 Contact me via Discord (Maki#8133)
 
